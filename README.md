@@ -1,4 +1,4 @@
-# Block Blast MOD APK: Unlimited Revive and Score Free Download
+# Block Blast MOD APK Unlimited Revive and Score Free Download
 
 ## What is Block Blast MOD APK?
 
